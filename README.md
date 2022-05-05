@@ -1,4 +1,4 @@
-## Heyy! I am Vaibhav Jaiswal
+## Hello. I am Vaibhav Jaiswal
 
 - Check out my notion tab :
 <a href="https://sixth-primula-a17.notion.site/Personal-Website-54b35782a87a43a09f3a417f0a71969d">Personal Blog : Vaibhav Jaiswal </a>
